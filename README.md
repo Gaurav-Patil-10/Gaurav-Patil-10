@@ -4,7 +4,7 @@
 - 🔭 I’m a Mechanical Engineer!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other experienced Programmers for better knowledge
-- 🥅 2020 Goals:  Make some good Projects for improving the Skills
+- 🥅 2023 Goals:  Make some good Projects for improving the Skills
 - ⚡ Fun fact: I love to Watch Animes , draw models using SOLIDWORKS
 
 ### Connect with me:
